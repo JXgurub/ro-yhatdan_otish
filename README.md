@@ -1,0 +1,2 @@
+# ro-yhatdan_otish
+ 
